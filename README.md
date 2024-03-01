@@ -11,4 +11,6 @@ https://ml2-developer.magicleap.com/?_gl=1*4v733n*_ga*NTY3MDg4OTg3LjE3MDY5MDg4OT
 
 https://forums.unrealengine.com/u/Vcode23/notifications
 
+https://virtualsmartbank.com/metaverse
 https://virtualsmartbank.com
+https://www.oculus.com/vr/983060605405401/
